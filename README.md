@@ -11,4 +11,4 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on Web Development
 - 📫 How to reach me: Mail me on anishdhatwalia35@gmail.com
 - 😄 Pronouns: Your wish
-- ⚡ Fun fact: I love listening and singing
+- ⚡ Fun fact: I love listening and singing Songs
