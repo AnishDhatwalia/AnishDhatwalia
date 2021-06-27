@@ -9,6 +9,6 @@ Here are some ideas to get you started:
 - 🔭 I’m currently working on Web Development
 - 🌱 I’m currently learning Javascript
 - 👯 I’m looking to collaborate on Web Development
-- 📫 How to reach me: Mail me on anishdhatwalia35@gmail.com
+- 📫 How to reach me: Mail me on anishdhatwalia35@gmail.com || https://www.linkedin.com/in/anish-dhatwalia-3949a1202/
 - 😄 Pronouns: Your wish
 - ⚡ Fun fact: I love listening and singing Songs
